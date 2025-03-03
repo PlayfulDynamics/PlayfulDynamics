@@ -1,6 +1,5 @@
 # Privacy Policy for Playful Dynamics Games
 
-**Effective Date:** [Ngày hiệu lực]
 
 ## 1. Introduction
 
